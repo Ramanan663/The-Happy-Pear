@@ -1,3 +1,21 @@
+INGREDIENTS - PIRI PIRI SAUCE
+
+ 100 g Almond Flour
+ 100 g White Flour
+ 200 g Coconut Oil
+ 200 ml Maple Syrup
+ 60 g Cacao
+ 1 tbsp Vanilla Extract
+ 200 g Cooked Beetroot (chopped roughly)
+ 1 tbsp Baking Powder
+ 
+INGREDIENTS FOR THE CHOCOLATE MOUSSE
+
+ 200 g Dark Chocolate
+ 150 ml Boiling Water
+ Ice
+
+
 Direction 
 
 * Preheat oven to 180 degrees.
@@ -25,3 +43,5 @@ DIRECTIONS FOR THE CHOCOLATE MOUSSE
 * If it gets too thick do not worry, just add a little more boiling water and incorporate it in.
 
 * Spread generously on top of the cooled brownies. Enjoy!
+
+
